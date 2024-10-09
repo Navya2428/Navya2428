@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Navya2428
-- 👀 I’m interested in coding, fashion, wellness, AI, art, novels
+- 👀 I’m interested in coding, fashion, wellness, AI, researching criminal cases, novels
 - 🌱 I’m currently learning C and python programming
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me: instagram handle - a.navyasree_pa
